@@ -3,7 +3,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/adithyaz/](https://github.com/adithyaz/)
 
-- 📫 How to reach me **mohamadadithya@gmail.com** or **http://m-adithya.rf.gd**
+- 📫 How to reach me **mohamadadithya@gmail.com** or **http://m-adithya.my.id**
 
 <p align="left">
 <h3 align="left">Connect with me:</h3>
